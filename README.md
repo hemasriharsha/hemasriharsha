@@ -1,6 +1,6 @@
 
+![icegif-386](https://github.com/user-attachments/assets/5c3edead-f86f-42a8-9e34-30b165e5efc1)
 
-**hemasriharsha/hemasriharsha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 # Hi there, I'm Hema! 👋
 
